@@ -10,7 +10,7 @@
   - Instagram : [__kashish077__](https://www.instagram.com/__kashish077__/)
   - LinkedIn :[Kashish Sharma](https://www.linkedin.com/in/kashish-sharma-445ba8334?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: Coding to help the planet.
+- ⚡ Fun fact: Coffee keeps me alive.
  ---
   ## 📊 GitHub Stats
 
